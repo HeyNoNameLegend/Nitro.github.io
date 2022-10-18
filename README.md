@@ -1,0 +1,33 @@
+# Nitro.github.io
+
+
+- NITRO CODE GENERATION FOR FREE!
+
+# WHATS THIS?
+
+**A NITRO GENERATOR GENERATES A CODE
+WITH LETTERS, NUMBERS
+FOR EXAMPLE : JjgGmAIkmWShjkdj
+
+EVERY GIFT DOMAIN STARTS WITH : discord.gifts/<gift code>
+
+EXAMPLE : discord.com/gifts/JjgGmAIkmWShjkdj
+
+THE NITRO CODE IS MADE OF MAX "16" LETTERS 
+IF I SAID WRONG SO I M SORRY...
+
+# HOW TO START?
+
+- GO TO https://scorpionv125.github.io/gen_coruscant/index0.html
+
+- THEN TYPE THE AMOUNT YOU WANT TO GENERATR PER/SEC
+
+- THEN YOU'LL GET MANG CODES
+
+- FIND THE REAL ONE
+
+- THEN GO TO [discord.gift/gift-code](https://discord.gift/)
+
+- PASTE THE GIFT CODE AT LAST
+
+- YOU CAN COPY IT WHILE STOPPED IT!
